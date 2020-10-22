@@ -1,4 +1,4 @@
-# Simple Exercise to Keed Active
+# Simple Exercise to Keep Active
 
 It is nothing to fancy, it just me keeping active. 
 
